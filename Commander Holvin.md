@@ -1,0 +1,1 @@
+- Lost eye, leg in Theseus explosion on Boz's first day in the campaign

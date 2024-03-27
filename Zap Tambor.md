@@ -1,0 +1,1 @@
+Younger brother of [[Wat Tambor]]. Leads his small [[Techno Anarchists]] on the Desert Planet 

@@ -1,0 +1,1 @@
+Work in conjunction with the [[Galaxy Map]], would be able to track data about each known faction including members, acquisition requests, quest status, Imperial/Criminal hostilities, and trade opportunities.

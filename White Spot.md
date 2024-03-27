@@ -1,0 +1,1 @@
+Opposite of a black hole. Hypermatter spills out unendingly, and nothing can enter its event horizon. It is often the source of the nebulas that span multiple star systems. They are theorized to be the result of a "hiccup" in spacetime, emitting that which a black hole once consumed.

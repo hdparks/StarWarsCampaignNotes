@@ -1,0 +1,1 @@
+At the center of an ancient citadel, deep within the bowls of [[Shandrada]]. The seal was broken in the Jedi Temple when [[Seb]] had his transformation

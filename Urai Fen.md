@@ -1,0 +1,1 @@
+[[Tiber Zahn]]'s lieutenant and personal bodyguard. Force Sensitive, but not trained in how to wield it. Business savvy, but not as cunning as [[Tiber Zahn|Zahn]] himself.

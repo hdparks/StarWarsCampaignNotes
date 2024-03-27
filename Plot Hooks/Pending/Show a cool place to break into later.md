@@ -1,0 +1,4 @@
+- A Gala is being held on the Crimson Dawn ship/Imperial Cruiser
+- A Hutt palace
+- A Casino on Canto Byte
+- The Sunder itself
