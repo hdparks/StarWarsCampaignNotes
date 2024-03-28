@@ -1,3 +1,9 @@
+---
+id: Major Conflicts
+aliases: []
+tags: []
+---
+
 - Rebels vs Empire
 	- Can take a lot of forms, separate groups and goals
 	- Examples
@@ -58,4 +64,5 @@ Options:
 - Twin King of Uldar
 - Fighter, Warrior, Charismatic Leader
 - Harvey Dent
+- Young Robert Baratheon
 - Mufasa
